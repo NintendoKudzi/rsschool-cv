@@ -1,1 +1,1 @@
-https://NintendoKudzi.github.io/rsschool-cv/cv
+https://NintendoKudzi.github.io/rsschool-cv/
